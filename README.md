@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Phatdepzaicrystal
+- I'm very lazy
